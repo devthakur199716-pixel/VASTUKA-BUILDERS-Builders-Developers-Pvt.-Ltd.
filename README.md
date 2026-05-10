@@ -55,7 +55,7 @@ To be the most trusted and innovative builder-developer in the region, recognize
 
 📧 **Email:** [contact@vastukabuilders.com](mailto:contact@vastukabuilders.com)  
 📱 **Phone:** [+91-XXXXXXXXXX](tel:+91XXXXXXXXXX)  
-📍 **Address:** [Your Company Address]
+📍 **Address:** 27, Mehuwala, Mehu Mafi, Dehradun, Uttarakhand 248018
 
 ---
 
